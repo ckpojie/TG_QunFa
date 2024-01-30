@@ -1,5 +1,6 @@
     #Tg_qunfa
 # 飞机群发器_TG群发软件_Telegram群发工具_破解版
+## [刺客工作室] 官网：https://www.ckpojie.com/
 ## [刺客工作室] 频道：https://t.me/cike2
 ## **唯一客服 @cike6 双向请联系机器人 @cike6bot**  
  TG附近人自动群发,炒群,飞机群发,tg群发器,telegram群发破解,telegram群发思路,豪迪,飞机手机群发软件,协议软件,Tg飞机协议群发,tg群发网页版,TG群发免费,纸飞机群发器,TG群发王,TG群发推广,群发助手,telegram群发技巧,余猫飞机群发器,群发工具,曝光王,Telegram群发系统,TG群发广告脚本,TG群发软件下载,telegram api群发,TG协议破解版群发软件,飞机群发机器人,飞机手机群发软件哪个好用,监听,群采集,飞机手机群发软件有哪些,大飞机群发源码,曝光王飞机群发软件破解版,tg群发,余猫纸飞机群发助手,飞机手机群发软件下载,Telegram群发器,telegram软件群发,飞机群发器,飞机群发器下载,飞机群发器破解版,拉人助手,telegram群发工具,telegram 群发言,加群软件,Telegram怎么群发,协议号注册机,TG机器人群发消息,群发软件,tg群发器免费版,私信软件,tg群发广告,telegram群发规则,telegram群发,telegram 群发,拉人软件,telegram批量群发,群发器破解版,曝光王飞机群发软件,telegram自动 群发,大飞机群发,Tg限制组群发消息,TG曝光王群发软件,tg 群发,飞机群发软件破解版下载,群发协议,telegram群发视频,TG曝光王群发软件下载,TG群发机器人脚本,Tg广告一键群发软件,批量加群,telegram群发助手,telegram群发 源码,telegram 群发脚本,飞机群发软件破解版,飞机群发协议,飞机群发器源码,telegram 群发工具,如何群发telegram,TG群发器
