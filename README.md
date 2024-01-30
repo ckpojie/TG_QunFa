@@ -5,7 +5,7 @@
 ## 频道：https://t.me/cike2
 ## 唯一客服 @cike6 双向请联系机器人 @cike6bot
 
-## 【免费福利，价值500RMB】TG群组采集 下载地址：https://t.me/cike2/89
+## 【免费福利，价值500RMB】TG群组采集工具 下载地址：https://t.me/cike2/89
 
 ### 部分群发器截图，请往下看！！！
 **飞机群发器_TG群发软件_Telegram群发工具_破解版**
