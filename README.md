@@ -1,5 +1,6 @@
     #Tg_qunfa
-# [刺客工作室] 飞机群发器_TG群发软件_Telegram群发工具_破解版
+# 飞机群发器_TG群发软件_Telegram群发工具_破解版
+## [刺客工作室]
 ## 官网：https://www.ckpojie.com/
 ## 频道：https://t.me/cike2
 ## 唯一客服 @cike6 双向请联系机器人 @cike6bot
